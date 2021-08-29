@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Alexxiconify
+- 👀 I’m interested in Minecraft & Physics
+- 🌱 I’m currently learning Physics & Java
+- 💞️ I’m looking to collaborate on something.
+- 📫 How to reach me dm
